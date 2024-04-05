@@ -11,4 +11,4 @@ Meu nome é Lucas Gabriel.
  lucas.gabriel.quadros@escola.pr.gov.br
 
  
-![](https://media.tenor.com/YuLv-hNStKgAAAAC/chika-kaguya.gif)
+
